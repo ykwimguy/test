@@ -1,3 +1,2 @@
 # test
-for mad people only
-for public use stuff something
+html games and shit, for mad people only
